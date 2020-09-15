@@ -1,0 +1,1 @@
+# TAMURAKOMA_VN_LandingPage_02
